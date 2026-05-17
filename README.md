@@ -6,7 +6,7 @@ my yahoo account is galoogadoo
 
 my google+ is the same name
 
-i own 15 dogs with the name lettuce,cheesy,jealousy,anger,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,
+i own 15 dogs with the name lettuce,cheesy,computer,anger,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,cupcake,
 cupcake,
 
 yo im a tall nonchalant 6'3 dreadhead btw
