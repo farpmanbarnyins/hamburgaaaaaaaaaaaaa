@@ -10,3 +10,5 @@ i own 15 dogs with the name lettuce,cheesy,computer,anger,cupcake,cupcake,cupcak
 cupcake,
 
 yo im a tall nonchalant 6'3 dreadhead btw
+
+<img width="606" height="465" alt="ksnip_20260518-180454" src="https://github.com/user-attachments/assets/335b2813-4daa-4a10-996f-5428739e12c0" />
