@@ -12,3 +12,5 @@ cupcake,
 yo im a tall nonchalant 6'3 dreadhead btw
 
 <img width="606" height="465" alt="ksnip_20260518-180454" src="https://github.com/user-attachments/assets/335b2813-4daa-4a10-996f-5428739e12c0" />
+
+yo im no longer a dreadhead but im a 6'4 bowlcut hair boy and chalant
